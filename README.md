@@ -19,6 +19,8 @@ Second-year Bachelor of Commerce student at **Rotman Commerce, University of Tor
 - 💃 **Dancing**: I enjoy dancing a lot, whether it's Kpop, Jazz funk or HipHop. I've danced for more than 10 years!
 - 🎹 **Playing the Piano**: I like to express myself through music. I started learning the piano at 4! My favorite musician is Mozart but my favorite piece to play is Fantasie-Impromptu in C-sharp by Chopin.
 - 🏀 **Basketball**: I enjoy playing basketball. It's a great way to stay active and work as a team. Funfact: I don't look sporty so my friends usually don't believe me I am the captain of the basketball team before :(
+### Fun Fact 
+I havve sister who is eight years older than me but people often think we are twins!!
 
 Here is my linkedin! looking forward to connecting!
 https://www.linkedin.com/in/chun-yee-chloe-ng/
